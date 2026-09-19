@@ -1,1 +1,1 @@
-# Level-Three-Problem-Solving-Upsolving-
+# Level Three Problem Solving (Upsolving)
